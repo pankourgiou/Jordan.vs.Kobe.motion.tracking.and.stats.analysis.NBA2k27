@@ -1,0 +1,1 @@
+Download the .html and double click it and there you go! a stats analysis/motion tracking of Michael Jordan vs Kobe Bryant(Bulls vs Lakers) from a 1m 30sec click of NBA2K27. NBA 2K27 graphics are perfect there so enjoy!
